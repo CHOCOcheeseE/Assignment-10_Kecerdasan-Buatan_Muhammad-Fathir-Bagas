@@ -1,0 +1,1 @@
+# Assignment-10_Kecerdasan-Buatan_Muhammad-Fathir-Bagas
